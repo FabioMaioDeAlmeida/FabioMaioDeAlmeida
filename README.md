@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 IT Student @ HES-SO Valais-Wallis in Business Information Technology<br>🎷Saxophone and guitar player<br>📷 Analog photography
+🔭 IT Student @ HES-SO Valais-Wallis in Business Information Technology<br>🎷 Saxophone and guitar player<br>📷 Analog photography
 
 
 ## 🌐 Socials:
